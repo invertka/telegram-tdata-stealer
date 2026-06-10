@@ -4,3 +4,7 @@ This repository contains a minimal working version of a script demonstrating how
 
 The material is provided for educational purposes only.
 I do not encourage any illegal actions.
+
+https://t.me/xuwute
+https://t.me/xuwute
+https://t.me/xuwute
